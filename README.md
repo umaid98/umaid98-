@@ -37,6 +37,6 @@ Computer Science Engineering Graduate passionate about building software that so
 
 ## 📫 Connect With Me
 
-- LinkedIn: www.linkedin.com/in/umaid-zakaria-2a273928b
+- LinkedIn: www.linkedin.com/in/umaid-zakaria
 - Email: umaideshaal@gmail.com 
 
